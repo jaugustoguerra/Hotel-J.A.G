@@ -32,7 +32,7 @@ Ficarei muito grato! :D
 
 E-mail: splgugulive1@gmail.com
 
-Website: [Hotel-J.A.G]([https://jaugustoguerra.github.io/Hotel-J.A.G/])
+Website: [https://jaugustoguerra.github.io/Hotel-J.A.G/]
 
 Atenciosamente,
 
