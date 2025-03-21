@@ -32,7 +32,7 @@ Ficarei muito grato! :D
 
 E-mail: splgugulive1@gmail.com
 
-Website: [https://joseaugustoguerraport.netlify.app/]([https://jaugustoguerra.github.io/Hotel-J.A.G/])
+Website: [Hotel-J.A.G]([https://jaugustoguerra.github.io/Hotel-J.A.G/])
 
 Atenciosamente,
 
